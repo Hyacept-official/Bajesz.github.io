@@ -1,1 +1,0 @@
-# Bajesz.github.io
